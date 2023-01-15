@@ -1,5 +1,4 @@
 # Marbleus Privacy Policy
-Privacy Policy
 
 We have created this privacy statement in order to demonstrate our firm
 commitment to your privacy. The following discloses our information
